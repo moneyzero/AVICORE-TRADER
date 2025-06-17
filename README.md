@@ -1,0 +1,2 @@
+# AVICORE-TRADER
+my gift
